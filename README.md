@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @arrjuniyer
-- 👀 I’m interested in Blockchain & Cyber Security
+- 👀 I’m interested in Ethical Hacking (ig)
 - 🌱 I’m currently learning Java
 - 💞️ I’m looking to collaborate on (idk)
-- 📫 How to reach me (through ig)
+- 📫 How to reach me (through insta 🤡)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Earth is flat
 
