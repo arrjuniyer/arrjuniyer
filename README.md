@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @arrjuniyer
-- 👀 I’m interested in Ethical Hacking (ig)
+- 👀 I’m interested in (not sure yet)
 - 🌱 I’m currently learning Java
 - 💞️ I’m looking to collaborate on (idk)
 - 📫 How to reach me (through insta 🤡)
