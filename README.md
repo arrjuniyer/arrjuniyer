@@ -2,7 +2,7 @@
 - 👀 I’m interested in (not sure yet)
 - 🌱 I’m currently learning Java
 - 💞️ I’m looking to collaborate on (idk)
-- 📫 How to reach me (through insta 🤡)
+- 📫 How to reach me (insta ig)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Earth is flat
 
