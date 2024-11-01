@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @arrjuniyer
-- 👀 I’m interested in (not sure yet)
+- 👀 I’m interested in (haven't figured out yet)
 - 🌱 I’m currently learning Java
-- 💞️ I’m looking to collaborate on (idk)
+- 💞️ I’m looking to collaborate on (idek)
 - 📫 How to reach me (insta ig)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Earth is flat
